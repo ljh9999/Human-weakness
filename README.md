@@ -24,4 +24,5 @@
 * 法则六： 真心实意的让对方知道自己多重要
 ## 第三篇
 * 你到底是想赢得一个毫无价值，口头上的辩论胜利，还是赢得别人的好感，孰重孰轻
+* ![image](https://github.com/marcoma2018/Human-weakness/blob/master/images/Capture.PNG)
 
